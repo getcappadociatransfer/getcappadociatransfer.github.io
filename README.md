@@ -1,1 +1,0 @@
-# getcappadociatransfer.github.io
